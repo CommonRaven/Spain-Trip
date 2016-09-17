@@ -30,4 +30,4 @@ Oct 8 – Barcelona – Dinner with Katherine &amp; Jesus
 
 Oct 9 - Barcelona
 
-Oct 10 – Flight: Madrid 14:30 &rarr Tel Aviv HH:MM
+Oct 10 – Flight: Madrid 14:30 &rarr; Tel Aviv HH:MM
