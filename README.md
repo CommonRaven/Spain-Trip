@@ -2,9 +2,13 @@
 There's no code in spain, but those are tasks to get ready
 This repo only uses the issues.
 
+## Logistics:
+
+Packing lists: https://docs.google.com/spreadsheets/d/12br_jPXHAmdhFxtLt-UgtcyJ2is2E-00zf4lYNTBgj4/edit#gid=0
+
 ## Trip Plan:
 
-https://www.google.com/maps/d/edit?mid=1pBy9a1eSXR3OQ3WL9AhprzCOlFc
+Map: https://www.google.com/maps/d/edit?mid=1pBy9a1eSXR3OQ3WL9AhprzCOlFc
 
 Sept 27 – Flight Tel Aviv 17:30 &rarr; Madrid 22:00
 
