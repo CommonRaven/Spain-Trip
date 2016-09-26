@@ -12,4 +12,6 @@ Wineries seem to requires pre-order, and are startin at a little over 50 per per
 ####Should Review:
 
 - http://winetourismspain.com/
+- http://devourbarcelonafoodtours.com/top-five-vineyard-tours-near-barcelona/
 - https://www.tripadvisor.com/Attractions-g187496-Activities-c36-t132-Catalonia.html
+- http://www.catalunya.com/what-to-do/wine-tourism
