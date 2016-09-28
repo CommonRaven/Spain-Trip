@@ -23,8 +23,9 @@ At the museum we only had the time to view important painters. A few new finding
 * Velázquez, `The Buffon Barbarroja Don Cristóbal de Castaneda y Pernia`
 * Velázquez, `Angus Dei` will be a great birthday gift for dad.
 * Rubens `The Birth of The Milky Way` (ROFL, WTF)
-* Goya `The Colossus`
+* Goya `The Colossus`(and other `Black Paintings`)
 * Goya `The Drowning Dog`
+* I find it interesting that so early they were very busy with dogs. Both Velázquez and Goya have great and interesting portrayals of dogs.
 
 After several hours we left the museum for lunch at `Estado Puro` which I rule as a tourist trap, and had a great, but small and expansive, lunch, including `Jamon Iberico` and `Patatas Bravas`.
 
@@ -32,9 +33,10 @@ Later on, we walked almost all the way to Teatro Real. on the way we met tens of
 
 Ilai & I split from my parents who then took a cab back home, and went to visit the `Museo Nacional Centro de Arte Reina Sofía`. The musem is brilliantly curated to.lead even an unexperienced viewer in a coherent and evolving path. We enjoyed it very much, and had the pleasure of observing original Dali pieces, multiple Picasso including the `Guernica`, and Man Ray's `Indestructible Object`.
 
-After the visit, we walked back to the Apartment, to find a dinner including local vegetables, Manchego cheese, Jamon, Mortadella, and fresh bread & butter.
+After the visit, we walked back to the Apartment, to find a dinner including local vegetables, Manchego cheese, Jamon, Mortadella, and fresh bread & butter, and a bottle of Ribera del Duero (which was,a great Tempranillo for just 7.5€) was airing on the table.
 
-We played music and prepared for tomorrow.
+We played music, had a terrible desert named <> and prepared for tomorrow.
+The desert had 4 variants, one of which was a bad Marzipan (which is odd, it should be better, as we are near Toledo), the second had the taste of crude oil and the texture of dust, and the third had the texture of glass shards and the taste of nothing. I didn't bother with the last.
 
 * `17.75km` walked (24K Steps!)
 * `1` Geocache Found
