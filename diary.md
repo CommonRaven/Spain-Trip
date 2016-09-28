@@ -27,9 +27,9 @@ At the museum we only had the time to view important painters. A few new finding
 * Goya `The Drowning Dog`
 * I find it interesting that so early they were very busy with dogs. Both Velázquez and Goya have great and interesting portrayals of dogs.
 
-After several hours we left the museum for lunch at `Estado Puro` which I rule as a tourist trap, and had a great, but small and expansive, lunch, including `Jamon Iberico` and `Patatas Bravas`.
+After several hours we left the museum for lunch at `Estado Puro` which I rule as a tourist trap, and had a great, but small and expensive, lunch, including `Jamon Iberico` and `Patatas Bravas`.
 
-Later on, we walked almost all the way to Teatro Real. on the way we met tens of Bayren Munich FC fans singing loudly, and preaparing the mood towards the game vs. Atletico Madrid later that day, and after that had Sangria and my first spanish Geocache at `Plaza Mayor`. We then went through the `San Miguel Market` which is extremely touristic and superficial, Madrid's Sarona market. the building is a delight though.
+Later on, we walked almost all the way to `Teatro Real`. on the way we met tens of Bayren Munich FC fans singing loudly, and preaparing the mood towards the game vs. Atletico Madrid later that day, and after that had Sangria and my first spanish Geocache at `Plaza Mayor`. We then went through the `San Miguel Market` which is extremely touristic and superficial, Madrid's Sarona market. the building is a delight though.
 
 Ilai & I split from my parents who then took a cab back home, and went to visit the `Museo Nacional Centro de Arte Reina Sofía`. The musem is brilliantly curated to.lead even an unexperienced viewer in a coherent and evolving path. We enjoyed it very much, and had the pleasure of observing original Dali pieces, multiple Picasso including the `Guernica`, and Man Ray's `Indestructible Object`.
 
