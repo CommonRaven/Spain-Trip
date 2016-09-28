@@ -31,9 +31,9 @@ After several hours we left the museum for lunch at `Estado Puro` which I rule a
 
 Later on, we walked almost all the way to `Teatro Real`. on the way we met tens of Bayren Munich FC fans singing loudly, and preaparing the mood towards the game vs. Atletico Madrid later that day, and after that had Sangria and my first spanish Geocache at `Plaza Mayor`. We then went through the `San Miguel Market` which is extremely touristic and superficial, Madrid's Sarona market. the building is a delight though.
 
-Ilai & I split from my parents who then took a cab back home, and went to visit the `Museo Nacional Centro de Arte Reina Sofía`. The musem is brilliantly curated to.lead even an unexperienced viewer in a coherent and evolving path. We enjoyed it very much, and had the pleasure of observing original Dali pieces, multiple Picasso including the `Guernica`, and Man Ray's `Indestructible Object`.
+Ilai & I split from my parents who then took a cab back home, and went to visit the `Museo Nacional Centro de Arte Reina Sofía`. The musem is brilliantly curated to.lead even an unexperienced viewer in a coherent and evolving path. We enjoyed it very much, and had the pleasure of observing original Dali pieces, multiple Picasso including the `Guernica`, and Man Ray's `Indestructible Object`, which I always imagined was tiny, but is the size of me.
 
-After the visit, we walked back to the Apartment, to find a dinner including local vegetables, Manchego cheese, Jamon, Mortadella, and fresh bread & butter, and a bottle of Ribera del Duero (which was,a great Tempranillo for just 7.5€) was airing on the table.
+After the visit, we walked back to the Apartment, to find a dinner including local vegetables (oh, such tomatoez!), Manchego cheese, Jamon, Mortadella, and fresh bread & butter, and a bottle of Ribera del Duero (which was,a great Tempranillo for just 7.5€) was airing on the table.
 
 We played music, had a terrible dessert named <> and prepared for tomorrow.
 The desert had 4 variants, one of which was a bad Marzipan (which is odd, it should be better, as we are near Toledo), the second had the taste of crude oil and the texture of dust, and the third had the texture of glass shards and the taste of nothing. I didn't bother with the last.
