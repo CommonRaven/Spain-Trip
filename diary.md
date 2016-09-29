@@ -33,6 +33,8 @@ Later on, we walked almost all the way to `Teatro Real`. on the way we met tens 
 
 Ilai & I split from my parents who then took a cab back home, and went to visit the `Museo Nacional Centro de Arte Reina Sofía`. The musem is brilliantly curated to.lead even an unexperienced viewer in a coherent and evolving path. We enjoyed it very much, and had the pleasure of observing original Dali pieces, multiple Picasso including the `Guernica`, and Man Ray's `Indestructible Object`, which I always imagined was tiny, but is the size of me.
 
+![Reina Sofia Museum Library](https://www.dropbox.com/s/2ej1bqnyhae16gs/20160928_190314.jpg)
+
 After the visit, we walked back to the Apartment, to find a dinner including local vegetables (oh, such tomatoez!), Manchego cheese, Jamon, Mortadella, and fresh bread & butter, and a bottle of Ribera del Duero (which was,a great Tempranillo for just 7.5€) was airing on the table.
 
 We played music, had a terrible dessert named <> and prepared for tomorrow.
