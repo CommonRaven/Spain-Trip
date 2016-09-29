@@ -21,7 +21,7 @@ We had coffee at home and left at around 10:00 towards the `Prado Museum`.
 On the way over, we stopped for another coffee alongside with Churros & Porros(?).
 At the museum we only had the time to view important painters. A few new findings of note:
 * Ribera's head of Bacchus
-* Velasquez, las maninas, look for dog paintings by him
+* Velasquez, `Las Maninas`, look for dog paintings by him
 * Velázquez,  `The Buffon Don Juan de Austria`
 * Velázquez, `Pablo de Valladolid`
 * Velázquez, `The Buffon Barbarroja Don Cristóbal de Castaneda y Pernia`
