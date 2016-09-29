@@ -62,12 +62,50 @@ We continued to seek a Geocache by the pond, which we failed to find, and we wen
 
 We continued to `Calle Gran Vía`, where we had lunch at a place named `100 Montaditos`, which serves a 100 different kinds of bite-sized sandwiches, along with bacon+cheese french fries and Sangria, all for very cheap (~35€ for a meal that held 4 persons until dinner).
 
+<p align="center">
+<img src="https://dl.dropboxusercontent.com/u/11722131/Spain/3_fries.png" width="600"><br>
+<i>Tel-Aviv &rarr; Madrid</i></p>
+
 We kept walkingthe Gran Vía all the way to `Plaza de España`, where we split (Mom went to the Reina Sofía, which she missed the day before, and Ilai & dad continued to the apartment).
 
 After visiting `Templo de Debod` (Temple of Debod), a monument brougt from Egypt and rebuild on an elevated surface just off the center of Madrid, and walking by `Museo Cerralbo` and the impressive `Palacio Real de Madrid` (Royal Palace of Madrid), I found 3 geocaches. For one that I didn't find, a comment mentioned getting help from a waiter at a nearby restaurant. After some amount of search, I asked a waiter, who somehow inferred I had no money and was hungry, and will have brougt me food have I not stopped him. Either he had no idea what a GC was, or he lied when he answered yes to my question 'do you speak English?'.
 
 I returned without using a map by walking an unknown way, mostly through very small streets and quiet alleys, and nice areas which are off the touristic center. I enjoyed a cold drink and a cigarette in one of tge gardens on the way, and arrived at the apartment near 7pm for a shower and some rest.
 
-* `13.5km` walked
+###### Flamenco
+
+At 9pm we were set at our table for dinner and a show of the traditional Flamenco dance. It was a fantastic night.
+
+The waitress asked for our orders straight at the beginnig, for the whole evening. 3-course meal:
+* First course: Vegetable cream, egg and porccini mushroom, or a salad.
+* Main course: Fish without sauce, fish in green sauce, or meatballs in red sauce.
+* Last course: Lemon ice cream or cheese cake.
+* Drinks.
+
+All 3 firsts were very fresh and had rich and distinct taste. The main courses were like nothing I have had, with the fish in green sauce being some sort of a white-asparagus and butter sauce. The fish was fried perfectly, and the sauce was perfect. House wine was served as well, `Cuatro Gotas` simple, sweet, and mello in taste. Most orobably a Tempranillo.
+
+When the meal was over, the show began. Dad took care to order at a place that isn't touristic and we were the only non-spanish at the `Taberna Flamenca "El Cortijo"` ("The Corridor").
+
+The Taverna was a long room, with tiny tables, and a simple design, underground, and the entrance was at the back of a building one a side-street. Aside from us, only 3 more tables were taken in the room, as this was a weekday. Luckily, we ordered early, so we were the nearest to the stage.
+
+The show was very intimate, and took place on a relatively small stage. Guitarist's hands were unbelievebly moving in ways many rockstars can only dream of achieveing.
+
+The singer was terrific, reaching total accuracy in his voice, and I wish I could understand the stories told.
+
+Two dancers were at the stage. The older, a thick, tall, blonde, with east european looks and severe face, seemed to be the owner or superior. The second dancer was a tall, extremely thin, almost arab-looking girl.
+
+Interestingly, clapping or otherwise joining the band at rythm was forbidden, as this may interfere with the dancers' accuracy. It was that intimate.
+
+Both dancers gave a performance I will not even try to describe. The intense, energetic movement, yet with total accuracy, was impaccable.
+
+The older of the dancers gave me a flower during the dance, which I will remember for a long while.
+
+We walked back home very excited, and very satisfied.
+
+* `14.6km` walked
 * `3` Geocaches found
 * `7` Different sandwiches eaten
+* `1` Flower received
+
+### Day 04 - 30/09/'16
+*Madrid &rarr; Toledo &rarr; Ávila*
