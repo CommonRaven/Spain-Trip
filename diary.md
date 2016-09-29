@@ -55,4 +55,19 @@ The desert had 4 variants, one of which was a bad Marzipan (which is odd, it sho
 ### Day 03 - 29/09/'16
 *Madrid*
 
-*
+After getting up we took a cab to the `Niño Jesús` gate of the `Retiro Park`; by coincidence the driver's name was Jesús.<br>
+We walked through the rose garden to the `Palacio de Cristal` (The Crystal Palace), a 19th century construction, consisting only of metal and glass. Inside, there was an odd pendulum like exhibit, which instead of drawing lines in sand, was dropping sand to draw. It was not well executed.
+
+We continued to seek a Geocache by the pond, which we failed to find, and we went to the second, larger, pond to get some coffee and Churros by the water. A band was playing perfect Jazz, and tourists were hiring boats. The scene looked a little like a petri dish for tourists, as the pond is very small, and there's no point in rowing 50 meters and back.
+
+We continued to `Calle Gran Vía`, where we had lunch at a place named `100 Montaditos`, which serves a 100 different kinds of bite-sized sandwiches, along with bacon+cheese french fries and Sangria, all for very cheap (~35€ for a meal that held 4 persons until dinner).
+
+We kept walkingthe Gran Vía all the way to `Plaza de España`, where we split (Mom went to the Reina Sofía, which she missed the day before, and Ilai & dad continued to the apartment).
+
+After visiting `Templo de Debod` (Temple of Debod), a monument brougt from Egypt and rebuild on an elevated surface just off the center of Madrid, and walking by `Museo Cerralbo` and the impressive `Palacio Real de Madrid` (Royal Palace of Madrid), I found 3 geocaches. For one that I didn't find, a comment mentioned getting help from a waiter at a nearby restaurant. After some amount of search, I asked a waiter, who somehow inferred I had no money and was hungry, and will have brougt me food have I not stopped him. Either he had no idea what a GC was, or he lied when he answered yes to my question 'do you speak English?'.
+
+I returned without using a map by walking an unknown way, mostly through very small streets and quiet alleys, and nice areas which are off the touristic center. I enjoyed a cold drink and a cigarette in one of tge gardens on the way, and arrived at the apartment near 7pm for a shower and some rest.
+
+* `13.5km` walked
+* `3` Geocaches found
+* `7` Different sandwiches eaten
