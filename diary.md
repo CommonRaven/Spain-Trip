@@ -64,7 +64,7 @@ We continued to `Calle Gran Vía`, where we had lunch at a place named `100 Mont
 
 <p align="center">
 <img src="https://dl.dropboxusercontent.com/u/11722131/Spain/3_fries.png" width="600"><br>
-<i>Tel-Aviv &rarr; Madrid</i></p>
+<i>100 Montaditos</i></p>
 
 We kept walkingthe Gran Vía all the way to `Plaza de España`, where we split (Mom went to the Reina Sofía, which she missed the day before, and Ilai & dad continued to the apartment).
 
@@ -72,7 +72,7 @@ After visiting `Templo de Debod` (Temple of Debod), a monument brougt from Egypt
 
 I returned without using a map by walking an unknown way, mostly through very small streets and quiet alleys, and nice areas which are off the touristic center. I enjoyed a cold drink and a cigarette in one of tge gardens on the way, and arrived at the apartment near 7pm for a shower and some rest.
 
-###### Flamenco
+#### Flamenco
 
 At 9pm we were set at our table for dinner and a show of the traditional Flamenco dance. It was a fantastic night.
 
