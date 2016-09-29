@@ -43,7 +43,7 @@ Ilai & I split from my parents who then took a cab back home, and went to visit 
 
 After the visit, we walked back to the Apartment, to find a dinner including local vegetables (oh, such tomatoez!), Manchego cheese, Jamon, Mortadella, and fresh bread & butter, and a bottle of Ribera del Duero (which was,a great Tempranillo for just 7.5€) was airing on the table.
 
-We played music, had a terrible dessert named <> and prepared for tomorrow.
+We played music, had a terrible dessert named `Turron` and planned the next day.
 The desert had 4 variants, one of which was a bad Marzipan (which is odd, it should be better, as we are near Toledo), the second had the taste of crude oil and the texture of dust, and the third had the texture of glass shards and the taste of nothing. I didn't bother with the last.
 
 * `17.75km` walked (24K Steps!)
