@@ -5,7 +5,7 @@
 *Tel-Aviv &rarr; Madrid*
 
 * Flight arrived at madrid area too early, so plane circeled around Cuenca. -_-
-* Arrived at the apartment (not too small, well equipped kitchen, nice bedrooms) near city center just before midnight, 
+* Arrived at the apartment @ `Av. de la Albufera, 18` (not too small, well equipped kitchen, nice bedrooms) near city center just before midnight, 
 * Listened to Vicky Christina Barcelona OST to get in the mood, had a snack, went to sleep. :)
 * Amendment: Also banged head real hard against an open window. Bleeded a bit, to really set the mood.
 
