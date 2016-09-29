@@ -10,7 +10,7 @@
 * Amendment: Also banged head real hard against an open window. Bleeded a bit, to really set the mood.
 
 <p align="center">
-<img src="https://dl.dropboxusercontent.com/u/11722131/Spain/1_map.jpg" width="600"><br>
+<img src="https://dl.dropboxusercontent.com/u/11722131/Spain/1_map.png" width="600"><br>
 <i>Tel-Aviv &rarr; Madrid</i></p>
 
 ### Day 02 - 28/09/'16
@@ -38,7 +38,7 @@ Later on, we walked almost all the way to `Teatro Real`. on the way we met tens 
 Ilai & I split from my parents who then took a cab back home, and went to visit the `Museo Nacional Centro de Arte Reina Sofía`. The musem is brilliantly curated to.lead even an unexperienced viewer in a coherent and evolving path. We enjoyed it very much, and had the pleasure of observing original Dali pieces, multiple Picasso including the `Guernica`, and Man Ray's `Indestructible Object`, which I always imagined was tiny, but is the size of me.
 
 <p align="center">
-<img src="https://dl.dropboxusercontent.com/u/11722131/Spain/20160928_190314.jpg" width="600"><br>
+<img src="https://dl.dropboxusercontent.com/u/11722131/Spain/2_library.jpg" width="600"><br>
 <i>Reina Sofia Museum Library</i></p>
 
 After the visit, we walked back to the Apartment, to find a dinner including local vegetables (oh, such tomatoez!), Manchego cheese, Jamon, Mortadella, and fresh bread & butter, and a bottle of Ribera del Duero (which was,a great Tempranillo for just 7.5€) was airing on the table.
