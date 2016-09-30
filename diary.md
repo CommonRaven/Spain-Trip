@@ -109,3 +109,40 @@ We walked back home very excited, and very satisfied.
 
 ### Day 04 - 30/09/'16
 *Madrid &rarr; Toledo &rarr; Ávila*
+
+We woke up early to finish preparations for the start of our journey to Barcelona. Dad and I went to the `Atocha`, Madrid's central station, to pick up our rented car (a Peugeot 3008), and returned to pick up Ilai & mom
+from the hotel.
+
+We left Madrid south to `Toledo`. Driving in Spain is a delight. Roads are in great shape, directins are everywhere, and driving culture seems very polite, and according to laws.
+
+When we arrived, we parked right under the `Alcázar of Toledo`, an impressive stone fort located in the highest part of Toledo, which was used as a Roman palace in the 3rd century, and had lunch at a restaurant named `Sancho y Panza`, while the place had pictures in it's menu, number one indicator of a tourist trap, I had a `Secreto Ibérico`, which was the best pork steak I have had in my life. Also, I have fonally had the long awaited `Pimientos de Padrón`, a dish of small, deep fried spanish peppers, which isn't found outside of spain (you can find Padrón peppers at Uzeria in Tel-Aviv, cooked differently).
+
+We continued to a tour around Toledo, which took.us out of the city, to a popular photo spot, and when we returned we went to see the `Santa Iglesia Catedral Primada de Toledo`. The cathedral has Gothic and Bizantine motives, with multiple arcs, and pillars made from multiple thin lines, unlike greek and roman pillars which are usually thick and monolithic.
+
+We bough Marzipan, as Toledo Marzipan is supposed to be one of the best in the world, and had coffe before we continued on our way.
+
+The way to Ávila reminded all of us of the Galilee in Israel, and also of the islands of Greece. I guess mediterranian is mediterranian. At about half way, we saw a beautiful stripe of beach, and got off the road to find the place. We had to drive a dust-road, to arrive at a real piece of heaven. 
+
+At an unnamed place, on the waters of `Embalse del Burguillo`, and nearest to `El Tiemblo` town, we found huge magmatic boulders near the water, and between them sand and clear water. We stayed to have something to eat, and enjoy the breeze.
+
+At some point we noticed it started getting darker, and we got back on our way. From there it took just over half an hour to get to Ávila, and we got there just before sunset (which is relatively late here).
+
+The city of Ávila is built with brown stone, and looks very old, even though when approacing, only modern buildings appear. At the highest point in the city, the `Catedral de Ávila` is clearly seen from every direction.
+
+We circled the city and climbed uphill in order to enter the old part of it, which is surrounded by walls. Near it's center, we found our hostel.
+
+After parking the car and a short rest, Ilai stayed in, and the rest of us went out for a tour.
+
+A note about parking: parking is prepaid, but if you pay over hours, it's carried to the next day. This way we were able to pay enough for both the remaining half an hour of payed time today, and add more for tomorrow morning.
+I don't know of any arrangement at home that is even slightly similar..
+
+We left the hotel to stroll outside of the old city, walking through `Plaza Zurraquín`, which was beautifully lit in a way that blended perfectly with the red sunset clouds above the Plaza's walls, and the cathedral. We walked outside the walls, and after observin the old vs. the new, we sat for dinner at `La Bodeguita de San Segundo`.
+
+A Bodegas, is a place serving primarily wine, and in addition some food beside it. 
+
+<TBC>
+
+* `km` traveled
+* `11km` walked
+* `750ml` of a truely unique wine had
+* `1` heaven unlocked
