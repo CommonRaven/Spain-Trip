@@ -138,13 +138,13 @@ I don't know of any arrangement at home that is even slightly similar..
 
 <p align="center">
 <img src="https://dl.dropboxusercontent.com/u/11722131/Spain/4_avila.jpg" width="600"><br>
-<i>The wall of Ávila (note the different stone at the top)</i></p>
+<i>The wall of Ávila<br>(note the different stone at the top)</i></p>
 
 We left the hotel to stroll outside of the old city, walking through `Plaza Zurraquín`, which was beautifully lit in a way that blended perfectly with the red sunset clouds above the Plaza's walls, and the cathedral. We walked outside the walls, and observed the different wall building styles, and different architecture styles inside and outside the walls. Older construction in Ávila, used dark, perhaps magmatic, stone, usually in very large, non-symmetrical pieces. With every building, it is clear how the stune changed gradually into lighter color stones, brought from farther away, and also the size of the bricks gets smaller, and they become smaller and more symmetrical.
 
-The three of us had dinner at `La Bodeguita de San Segundo`. A Bodegas, is a place serving primarily wine, and in addition some food beside it. Though wine is the main focus, the different courses ("Raciones") and half-courses were terrific. Notable were fried sardines, in a sauce I was unable to recognise, with onion, red pepper, and perhaps Saffron; also, plain grilled green asparagus was brought to perfection, with fresh, home made mayo and garlic. It was so good, I left the,sauce aside, to be had with bread.
+The three of us had dinner at `La Bodeguita de San Segundo`. A Bodegas, is a place serving primarily wine, and in addition some food beside it. Though wine is the main focus, the different dishes ("Raciones") and half-dishes were terrific. Notable were fried sardines, in a sauce I was unable to recognise, with onion, red pepper, and perhaps Saffron; also, plain grilled green asparagus was brought to perfection, with fresh, home made mayo and garlic. It was so good, I left the,sauce aside, to be had with bread.
 
-* 207km` traveled
+* `207km` traveled
 * `11km` walked
 * `750ml` of a truely unique wine had
-* `1` heaven unlocked
+* `1` piece of heaven unlocked
