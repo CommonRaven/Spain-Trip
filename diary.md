@@ -1,7 +1,7 @@
 
 #Trip Diary
 
-### Day 01 - 27/09/'16
+## Day 01 - 27/09/'16
 *Tel-Aviv &rarr; Madrid*
 
 * Flight (which was hell, but aren't all flights?) arrived at madrid area too early, so plane circeled around Cuenca. -_-
@@ -13,7 +13,7 @@
 <img src="https://dl.dropboxusercontent.com/u/11722131/Spain/1_map.png" width="600"><br>
 <i>Tel-Aviv &rarr; Madrid</i></p>
 
-### Day 02 - 28/09/'16
+## Day 02 - 28/09/'16
 *Madrid*
 
 Woke up long before the alarm clock.
@@ -52,7 +52,7 @@ The desert had 4 variants, one of which was a bad Marzipan (which is odd, it sho
 * `1-0` Atletico-Bayren =/
 
 
-### Day 03 - 29/09/'16
+## Day 03 - 29/09/'16
 *Madrid*
 
 After getting up we took a cab to the `Niño Jesús` gate of the `Retiro Park`; by coincidence the driver's name was Jesús.<br>
@@ -72,7 +72,7 @@ After visiting `Templo de Debod` (Temple of Debod), a monument brougt from Egypt
 
 I returned without using a map by walking an unknown way, mostly through very small streets and quiet alleys, and nice areas which are off the touristic center. I enjoyed a cold drink and a cigarette in one of tge gardens on the way, and arrived at the apartment near 7pm for a shower and some rest.
 
-#### Flamenco
+### Flamenco
 
 At 9pm we were set at our table for dinner and a show of the traditional Flamenco dance. It was a fantastic night.
 
@@ -107,7 +107,7 @@ We walked back home very excited, and very satisfied.
 * `7` Different sandwiches eaten
 * `1` Flower received
 
-### Day 04 - 30/09/'16
+## Day 04 - 30/09/'16
 *Madrid &rarr; Toledo &rarr; Ávila*
 
 We woke up early to finish preparations for the start of our journey to Barcelona. Dad and I went to the `Atocha`, Madrid's central station, to pick up our rented car (a Peugeot 3008), and returned to pick up Ilai & mom
@@ -147,4 +147,80 @@ The three of us had dinner at `La Bodeguita de San Segundo`. A Bodegas, is a pla
 * `207km` traveled
 * `11km` walked
 * `750ml` of a truely unique wine had
-* `1` piece of heaven unlocked
+* `1` piece of eden unlocked
+
+
+## Day 05 - 01/10/'16
+*Ávila &rarr;  Segovia &rarr; ???*
+
+After our morning coffee in Ávila, we went for another tour of the city, looking for new views, and visiting sites which were closed the night before.
+
+We walked to the Cathedral and there we split. Ilai & I climbed the wall for a view of the whole city, and then we scanned the old city to leave it without any cache not found.
+
+We then got in the car, and drove to `Segovia`. While very known, Segovia is relatively small. it's main attraction is the best reserved `The Aqueduct of Segovia` is a Roman aqueduct and one of the most significant and best-preserved ancient monuments in the area. It is located in Spain and is the symbol of Segovia, as evidenced by its presence on the city's coat of arms.
+
+As beautiful as the Aqueduct is, the reason we came to Segovia was our planned lunch at the `Mesón De Cándido` ("Cándido's Mansion"), which is more than a restaurant, as much as a major culinary establishment.
+
+While all dishes excel and the place is considered an important culinary location, it's mainly known for it's `Cándido Style Segovia Suckling Pig Recipe`. As it sounds, this is a dish of a very young piglet cooked very simply. The recipe is available on the restaurant's website, and ingredients are only:
+ 
+> 1 cochinillo (piglet) of 4 to 4,5 kg  
+> 100g lard  
+> Salt
+
+But much more importantly, a ritual which takes place in the restaurant a few times a day shows the quality of the result, by proving the most important part of the recipe:
+
+>  The piglet must be crunchy enough to be carved with the edge of a plate.
+
+And indeed, the cooked pig is placed at the center of the room, and after a short explanation, is cut to serving sized pieces using a porccelain plate, which is then thrown on the floor, and is broken.
+
+**insert image**
+
+After lunch, we climbed Segovia's streets to the cathedral, also constructed in Gothic architecture. The streets of Segovia were very crowded, mostly with spanish tourists. And it seems.like the city takes pride in the region's wines, of the `Catilla y Leon` region, including the Ribera del Duero.
+
+From there, we set the GPS to `Zaragoza`, almost a 4-hour drive, which we weren't certail we will complete.
+
+After about an hour and a half we found ourselves far from the main roads, between beautiful hills, with a fort nearby, we found a tiny settlement, and stopped for coffee.
+
+Apparently, even the most remote locations in spain, such as `San Esteban de Gormaz` have at least 3 things available (and more on that later):
+
+* Coffee, 24/7
+* A Geocache (or more than one)
+* Tourist information
+
+Mom can't hold herself from speaking to the rep at the tourist centers, and collecting a stack of maps and local attraction brouchures.
+
+After a short break, a quick geocache, and a refreshment, we continued, driving for about two more hours, which got scarrier and scarrier.
+
+Away from main cities and main roads, completely alone, only seeing other cars every long distances, it started to become tiring, and the sun began to set.
+
+As it got darker, and we still had a long way to Zaragoza, we started checking every settlement for hotels, but each seemed more deserted and unpleasent than the previous.
+
+At some point, we began seeing graffiti saying `Falangas Assassini`, which is a call for murder by the Falangas -  the most radical, fascist movrment is spain. Not very reassuring.
+
+Completing long distances and finding nothing, we were able to merge back into the main way between Madrid And Zaragoza, we tried the next settlement, `Ariza`, which only had one hostel, not to be found, and felt like a ghost town.
+
+With the help of Google maps, we continued to `Alhama de Aragón`, the nearest settlement, where we tried the recommended hotel, only to find it is way over budget.
+
+We then started calling different hotels at the area, until one was willing to accept us.
+
+While we though it was in the same settlement, in fact the drive took over 20 minutes, and it was scary and dangerous, driving on a completely dard car-width road, on mountinsides, crossing 1 car-width bridges over huge lakes.
+
+After 20+ minutes of this intense drive, not knowing where,we are haded, tired and annoyed, we,arrived at `Hotel Balneario De La Virgen` ("Spa of the Virgin").
+
+We were all amazed to find a heavenly spot on a river among the cliffs, with affordable, neat rooms, a spa, hot springs, and beautiful gardens.
+
+The resort was built into the cliffside, with balconies dug into stone as small caves, and with the building merging into stone, and it's banner hung high on the cliff.
+
+No cellular reception was available at the place, and nothing was to be found anywhrere around. The place seems to be a secret spot, only known to spanish, as no other tourists were around, and as the receptionist heard our story she said "oh, you probably don't have swimwear.."
+
+Oh, we had our swimwear alright. We were all ecstatic, and extremely happy with the pleasent surprise, as we were prepared for the worst.
+
+After a short walk around, and a beer and a ham sandwich at the cafeteria, we split to our rooms, exhausted.
+
+I went outside to take a few photos, but the conditions were sub-optimal, and I returned to bed.
+
+* `348km` traveled
+* `8.3km` walked
+* `6` Geocaches found
+* `1` more piece of eden found
+
