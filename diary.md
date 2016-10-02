@@ -173,7 +173,10 @@ But much more importantly, a ritual which takes place in the restaurant a few ti
 
 And indeed, the cooked pig is placed at the center of the room, and after a short explanation, is cut to serving sized pieces using a porccelain plate, which is then thrown on the floor, and is broken.
 
-**insert image**
+<p align="center">
+<img src="https://dl.dropboxusercontent.com/u/11722131/Spain/5_candido.jpg" height="600">
+<img src="https://dl.dropboxusercontent.com/u/11722131/Spain/5_leg.jpg" height="600"><br>
+<i>A piglet right from the oven</i></p>
 
 After lunch, we climbed Segovia's streets to the cathedral, also constructed in Gothic architecture. The streets of Segovia were very crowded, mostly with spanish tourists. And it seems.like the city takes pride in the region's wines, of the `Catilla y Leon` region, including the Ribera del Duero.
 
