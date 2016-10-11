@@ -240,10 +240,10 @@ I went outside to take a few photos, but the conditions were sub-optimal, and I 
 *Cadaqués and Port Lligat*
 
 ## Day 10 - 06/10/'16
-*Cadaqués &rarr; Girona &rarr; Barcelona*
+*Cadaqués &rarr; Girona &rarr; Lloret de Mar*
 
-## Day 11 - 07/10/'16
-*Barcelona*
+## Day 11 - 07/10/'16 - Welcome to Terminal B.
+*Lloret de Mar &rarr; Barcelona*
 
 ## Day 12 - 08/10/'16
 *Barcelona*
