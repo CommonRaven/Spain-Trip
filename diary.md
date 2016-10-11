@@ -227,3 +227,34 @@ I went outside to take a few photos, but the conditions were sub-optimal, and I 
 * `6` Geocaches found
 * `1` more piece of eden found
 
+## Day 06 - 02/10/'16
+*Ávila &rarr;  Segovia &rarr; Aínsa*
+
+## Day 07 - 03/10/'16
+*Aínsa &rarr; Vielha &rarr; La Seu d'Urgell*
+
+## Day 08 - 04/10/'16
+*La Seu d'Urgell &rarr; Cadaqués and Port Lligat*
+
+## Day 09 - 05/10/'16 - Currahee
+*Cadaqués and Port Lligat*
+
+## Day 10 - 06/10/'16
+*Cadaqués &rarr; Girona &rarr; Barcelona*
+
+## Day 11 - 07/10/'16
+*Barcelona*
+
+## Day 12 - 08/10/'16
+*Barcelona*
+
+## Day 13 - 09/10/'16
+*Barcelona (Montjuic)*
+
+## Day 14 - 10/10/'16 - An unpleasent surprise
+*Barcelona &rarr; Barcelona*
+
+## Day 15 - 11/10/'16
+*Barcelona &rarr; Tel Aviv (finally)*
+
+
