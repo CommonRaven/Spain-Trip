@@ -150,7 +150,7 @@ The three of us had dinner at `La Bodeguita de San Segundo`. A Bodegas, is a pla
 * `1` piece of eden unlocked
 
 
-## Day 05 - 01/10/'16
+## Day 05 - 01/10/'16 - A pleasant surprise
 *Ávila &rarr;  Segovia &rarr; ???*
 
 After our morning coffee in Ávila, we went for another tour of the city, looking for new views, and visiting sites which were closed the night before.
@@ -251,7 +251,7 @@ I went outside to take a few photos, but the conditions were sub-optimal, and I 
 ## Day 13 - 09/10/'16
 *Barcelona (Montjuic)*
 
-## Day 14 - 10/10/'16 - An unpleasent surprise
+## Day 14 - 10/10/'16 - An unpleasant surprise
 *Barcelona &rarr; Barcelona*
 
 ## Day 15 - 11/10/'16
