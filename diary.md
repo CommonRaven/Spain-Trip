@@ -262,6 +262,26 @@ After dinner, we split into our rooms and prepared for bed. Ilai and I were unab
 ## Day 07 - 03/10/'16
 *Aínsa &rarr; Vielha &rarr; La Seu d'Urgell*
 
+The next day, we woke up early and got back to the restaurant to get coffee. With dad's help, we were able to translate the question at which we got stuck last night (with the Wherigo cache). Amazingly enough, from here we raced to the end coordinate of the cache even though it was in Spanish, and obtained the key to mark the Wherigo completed. This was fun and revealed us additional parts of the city which we weren't aware of.
+
+After the cache, we headed to `Vielha e Mijaran. After a short drive and a stunning green hilltop drive, we arrived at a relatively new village, where skiers prepare before climbing to the ski sites in the area. Many mountain gear shops were on the main road, and the town looked like it was out taken out of a painting. Modern building, but with affinity to old styles, low houses with coal black roofs. The town was full of blooming flowers, and a lake crossing it was flowing under a bridge on the main route.
+
+We had coffee and proper `Patatas bravas` for the first time in Spain. Patatas bravas, or `patatas a la brava`, is a dish native to Spain, often served in bars. It typically consists of white potatoes that have been cut into irregular shapes of about 2 centimeters, then fried in oil, then served warm with a sauce such as a spicy tomato sauce or an aioli. In here, it was served with both sauces and was excellent.
+
+On from Vielha we continued to La Seu d'Urgell, again driving on the mountainsides, with a great view of steep cliffs and rocks, and vast areas where human foot probably rarely walks. It 's hard to descripbe how fantastic the view in these regions is, at lease to someone who has never experienced such areas and seen those places.
+
+We stopped to refresh at an even smaller village named `Rialp`. I don't know much about the place as we haven't in fact visited there but just stopped for refreshment. Near the road, we walked to the lake of `Noguera Pallaresa, a river flowing from `Era Font d'era Noguereta` at an elevation of about 2,000 meters and merges into the `Segre` river, right just before the `reservoir of Camarasa`. Its waters then flow to the Mediterranean.
+
+We enjoyed the soothing flow, and washed in the soft chilly waters, then continued on our way.
+
+From there, we climbed the mountains yet again, in a road which had multiple observation spots to the enormous mountainsides surrounding the area, and kept on our way to `La Seu d'Urgell`.
+
+La Seu d'Urgell is the capital of the comarca Alt Urgell, head of the judicial district of La Seu d'Urgell and the seat of Bishop of Urgell, one of the Andorra co-princes. Residents of this area regularly drive into Andorra - a ~20 minutes drive - to shop for goods without tax.
+
+The city itself is boring, and for the most part also disgusting. Cow poop is present in the air throughout the day, and the neighborhood in which we slept was dirty and dull.
+
+Ilai and I went out for a quick grab of two caches, one of which was located on a small artificial island inside a local park. We then returned to have our traditional Spain dinner: Jamon, Manchego, baguette, tomatoes and lettuce, and soon after went to sleep.
+
 ## Day 08 - 04/10/'16
 *La Seu d'Urgell &rarr; Cadaqués and Port Lligat*
 
@@ -285,5 +305,3 @@ After dinner, we split into our rooms and prepared for bed. Ilai and I were unab
 
 ## Day 15 - 11/10/'16
 *Barcelona &rarr; Tel Aviv (finally)*
-
-
