@@ -230,6 +230,36 @@ I went outside to take a few photos, but the conditions were sub-optimal, and I 
 ## Day 06 - 02/10/'16
 *Ávila &rarr;  Segovia &rarr; Aínsa*
 
+A we woke up, we went for breakfast at the hotel. The simple hall and meal made us feel like in an kibbutz dining room. Surrounded by mostly old spanish man and women, we felt as if we didn't belong at the place.
+
+Bad, american style coffee was served to the table, and the meal consisted of fruit, mortadella, and bread. We ate quickly, and left for a short stroll, and a quick find. After packing, Ilai and I tried a second cache, but did not succeed.m, as it required a UV light.
+
+We drove directly to Zaragoza, only to find how happy we were not to have reached it the day before. The city is very large, and as we circled it from south to nirth, and entered from the north, it seemed that aside from the city center, it is ugly and boring. The whole city seems to consist of cheap, standard working class housing, with large square identical apartment blocks.
+
+As we approached the city center we saw the Catedral-Basílica de Nuestra Señora del Pilar de Zaragoza ("The Cathedral-Basilica of Our Lady of the Pillar"), a Baroque style building, with 9 chapels.  The Basilica admires Blessed Virgin Mary, under her title "Our Lady" of the Pillar praised as Mother of the Hispanic Peoples
+
+The tradition of the shrine of El Pilar, as given by Our Lady in an apparition to Sister Mary Agreda and written about in The Mystical City of God, is that Our Lady was carried on a cloud by the angels to Zaragoza during the night.
+
+This is hilarious, as no godly creature will visit this dirty, ugly place. But still, we were lucky enough to enjoy the end of Sunday's mass.
+
+We had coffee at the plaza, and left the city center to have lunch at a seafood-tapas restaurant named TraGanTua Gran Taberna. The place was recommemded to us, and indeed, everything was great, including a salad of unique tomatos which only grow in the area and had a very distinct taste, and were served with only olive oil and salt, but for us were a fresh new taste.
+
+From Zaragoza, we set sail to Aínsa. The road over, fastly climbing to thr mountain area, was *breathtaking*! Huge, upright spikes of stone, endless trees greener than green and overall a beutiful way climbing high on the hillsides, and lowering back to the valley only to get to the next hill.
+
+Near Aínsa, Ilai spotted a Geocache on the map which had a huge amount of favorite points, and we were hoping to find it, but the area of the cache was blocked bt construcyion works just offroad, and we were unable to get to the spot; still, the cache spot was a beautiful one, at the merge point of two rivers lust between 3 mountains.
+
+We reached Aínsa, to find a new city low and near the river crossing it, and on top of it, uphill, the old city, made of brown brick, with low buildings. The floor was made of stone, but in an odd style where each stone was far from the ones near it, and had a gap. This made walking harder and quickly also painful on the muscles, and made pulling a trolly impossible.
+
+The city is in Aragon region, with amazing view north to the `Pyrenees mountain range`. From the old city, huge mountains can be easilty seen, constantly changing with different waether, like a living thing.
+
+The old-city parking is located outside the city center - the `Plaza Mayor` [which is very small], and requires walking through the `Castillo Fortaliza de Ainsa del siglo XI`, a relatively small castle, which shows two different construction types, from two different eras (11th and 16th centuries), which have resulted in a complex defensive enclosure.
+
+Different military and strategic requirements of each time greatly altered construction techniques, and required changes to the building. The engineer Tiburcio Spanochi in the sixteenth century, in charge of building fortifications along the Aragonese Pyrenees, conceived Aínsa Castle as a unitary enclosure, giving homogeneity and taking advantage of all traces of previous construction phases. Those are now seen as remains of the original medieval fortification built in the eleventh century.
+
+We toured the city, which is small, and as it was late, we checked in at a hotel right in the Plaza Mayor, named `Posada Real`, and were greeted by a Cuban lady living in Aínsa after getting married with a spanyard. Wnd sat to dine at a restaurant of the same name, located at the opposite side of the plaza. It was chilly outside, and that was perfect. We were able to enjoy the sunset, and see the city fall in darkness.
+
+After dinner, we split to our rooms, and prepared for bed. Ilai and I were unable to sleep, and kept thinking about geocache ideas, and had other conversations. We reviewed the caches of Aínsa, and decided to try a `Wherigo` cache fo the first time. Sadly, after getting dressed at 2:30am, and heading to the Castillo, we found out that the cache was in spanish, and while we were able to guess the answer for the first question, we failed the second. We got back to the hotel, somewhat disappointed, and went to sleep.
+
 ## Day 07 - 03/10/'16
 *Aínsa &rarr; Vielha &rarr; La Seu d'Urgell*
 
